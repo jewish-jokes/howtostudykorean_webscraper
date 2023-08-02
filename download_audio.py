@@ -1,0 +1,1 @@
+# C:\Users\toshu\AppData\Roaming\Anki2\User 1\collection.media
